@@ -100,26 +100,26 @@ Metal Monkey does not ask the participant to accept a permanent label.
 A result may reflect what naturally attracts a person **at a particular moment** rather than an eternal, unchanging identity.
 
 A person's perspective can change.
-
 Life can change.
-
 The way a person sees the world can change.
 
 That does not necessarily make an earlier result meaningless.
-
 It may simply mean that the mirror is reflecting something different.
 
-The important question is therefore not only:
+### ⚖️ The Cost of Judgment
 
-> **"What type am I?"**
+When society judges individual behavior, it often ignores the invisible pressure of social expectations. We condemn human failure without recognizing that we frequently block the very paths where people could safely express their true nature. 
+
+The test attempts to break this cycle by shifting the focus from judgment to systemic observation.
+
+> **Want to explore how social constraints and element transformations drive behavior?**
+> Read the full **[The Perspective Lens](THE_PERSPECTIVE_LENS_V01_2026-08-23.md)** — a deep look into the behavioral dynamics of the five elements and the "Blind Spot of One's Nature" effect.
+
+The important question is therefore not only:
+> **"What type am I?"** [1]
 
 but:
-
-> **"What do I naturally notice?"**
-
-And perhaps even more importantly:
-
-> **"What can someone else see that I cannot?"**
+> **"What do I naturally notice?"** [1]
 
 ---
 
